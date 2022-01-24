@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Valter Gådin
+- 📫 valter@gadin.nu
